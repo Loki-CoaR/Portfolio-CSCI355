@@ -90,3 +90,5 @@ It helps my OCD so I also hope that other people who are just like me who want t
 ALL RIGHTS RESERVED TO MY ARTISTS! THEY ARE MY PRIDE AND JOY I LOVE THEM!
 
 https://images.squarespace-cdn.com/content/v1/6694c7917c956c53964034d9/004eb8d4-c595-4ffc-b65d-41ebc3231ad2/ss_de34f633e34a6b1b22ac27e785bd3550a2977949.1920x1080.jpg (URL used for the games)
+
+https://cuny-my.sharepoint.com/:x:/r/personal/ivan_dam95_qmail_cuny_edu/_layouts/15/Doc.aspx?sourcedoc=%7BBC749D9F-9CB7-4987-B5F2-5D63761FE925%7D&file=DND%20lol.xlsx&action=default&mobileredirect=true&DefaultItemOpen=1&wdOrigin=APPHOME-WEB.LOGOUT%2CAPPHOME-WEB.UNAUTH%2CAPPHOME-WEB.SHELL.SIGNIN%2CAPPHOME-WEB.JUMPBACKIN&wdPreviousSession=82dd605c-e42e-41f7-9a73-ddb393d1bd91&wdPreviousSessionSrc=AppHomeWeb&ct=1780319791533 (Original One Shot Excel Sheet. Current)
